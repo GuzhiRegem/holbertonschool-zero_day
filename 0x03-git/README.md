@@ -1,1 +1,1 @@
-*Emphasize* _emphasize_ OA
+*Emphasize* _emphasize_
